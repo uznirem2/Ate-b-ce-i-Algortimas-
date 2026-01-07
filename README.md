@@ -1,1 +1,1 @@
-# Ate-b-ce-i-Algortimas-
+# Atesbocegi-Algortimasi
